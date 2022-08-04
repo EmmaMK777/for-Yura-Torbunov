@@ -1,5 +1,5 @@
 # for-Yura-Torbunov
-# rsschool-cv
+
 ___
 # Emma Palivoda
 
